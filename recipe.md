@@ -1,0 +1,3 @@
+Boiled and roasted eggs were cooked in a spicy onion-tomato gravy. The sweetness from onion and tomatoes blends exotically with the Garam masala and spice powders. The more the onions were, the tastier the dish turns out to be. A wonderful mix of sweetness and spiciness leaves through the tongue at every spoonful of rice and curry.
+
+Indian egg curry can be served with rice/Indian flat bread/ white bread
